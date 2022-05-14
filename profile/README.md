@@ -1,4 +1,4 @@
-# HilZiria Network 🎡
+# HilZiria Network 🕹️🎮
 
 ## Servers
 
